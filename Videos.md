@@ -751,12 +751,31 @@ https://live247tv.com/iframe/vod.php?s=P_Mes-04_V_Lec_Lec10.mp4&c=vodcolegiohebr
 
 ## Modulo 1
 
-## Modulo 2
+https://live247tv.com/iframe/vod.php?s=P_Mes-01_NV_Mat_Lec01.mp4&c=vodcolegiohebron
 
-## Modulo 3
+https://live247tv.com/iframe/vod.php?s=P_Mes-01_NV_Mat_Lec02.mp4&c=vodcolegiohebron
 
-## Modulo 4
+https://live247tv.com/iframe/vod.php?s=P_Mes-01_NV_Mat_Lec03.mp4&c=vodcolegiohebron
 
+https://live247tv.com/iframe/vod.php?s=P_Mes-01_NV_Mat_Lec04.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-01_NV_Mat_Lec05.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-01_NV_Mat_Lec06.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-01_NV_Mat_Lec07.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-01_NV_Mat_Lec08.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-01_NV_Mat_Lec09.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-01_NV_Mat_Lec10.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-01_NV_Mat_Lec11.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-01_NV_Mat_Lec12.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-01_NV_Mat_Lec13.mp4&c=vodcolegiohebron
 
 ## Modulo 2
 
