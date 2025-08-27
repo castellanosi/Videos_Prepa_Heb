@@ -1137,11 +1137,103 @@ https://live247tv.com/iframe/vod.php?s=P_Mes-04_NV_NatSoc_Lec09.mp4&c=vodcolegio
 
 ## Modulo 1
 
+https://live247tv.com/iframe/vod.php?s=P_Mes-01_V_Sico_Lec01.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-01_V_Sico_Lec02.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-01_V_Sico_Lec03.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-01_V_Sico_Lec04.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-01_V_Sico_Lec05.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-01_V_Sico_Lec06.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-01_V_Sico_Lec07.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-01_V_Sico_Lec08.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-01_V_Sico_Lec09.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-01_V_Sico_Lec10.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-01_V_Sico_Lec11.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-01_V_Sico_Lec12.mp4&c=vodcolegiohebron
+
 ## Modulo 2
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-02_V_Sico_Lec01.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-02_V_Sico_Lec02.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-02_V_Sico_Lec03.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-02_V_Sico_Lec04.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-02_V_Sico_Lec05.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-02_V_Sico_Lec06.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-02_V_Sico_Lec07.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-02_V_Sico_Lec08.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-02_V_Sico_Lec09.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-02_V_Sico_Lec10.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-02_V_Sico_Lec11.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-02_V_Sico_Lec12.mp4&c=vodcolegiohebron
 
 ## Modulo 3
 
+https://live247tv.com/iframe/vod.php?s=P_Mes-03_V_Sico_Lec01.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-03_V_Sico_Lec02.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-03_V_Sico_Lec03.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-03_V_Sico_Lec04.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-03_V_Sico_Lec05.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-03_V_Sico_Lec06.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-03_V_Sico_Lec07.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-03_V_Sico_Lec08.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-03_V_Sico_Lec09.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-03_V_Sico_Lec10.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-03_V_Sico_Lec11.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-03_V_Sico_Lec12.mp4&c=vodcolegiohebron
+
 ## Modulo 4
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-04_V_Sico_Lec01.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-04_V_Sico_Lec02.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-04_V_Sico_Lec03.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-04_V_Sico_Lec04.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-04_V_Sico_Lec05.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-04_V_Sico_Lec06.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-04_V_Sico_Lec07.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-04_V_Sico_Lec08.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-04_V_Sico_Lec09.mp4&c=vodcolegiohebron
+
+https://live247tv.com/iframe/vod.php?s=P_Mes-04_V_Sico_Lec10.mp4&c=vodcolegiohebron
 
 ## Modulo 5
 
